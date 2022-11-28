@@ -22,3 +22,10 @@ if we add you as a friend you are free to c+h whenever
 standard dni applies, we are often offtab so you may whisper
 
  
+° • ° • ° • ° • °
+
+our hosts are both mlm + bi but otherwise varies
+
+we are white and introjects in system never race claim or use names from sources
+
+please don't interact with us if you are/support endos or compare irls to system things/alters
