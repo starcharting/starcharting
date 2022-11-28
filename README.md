@@ -31,3 +31,5 @@ our hosts are both mlm + bi but otherwise varies
 we are white and introjects in system never race claim or use names from sources
 
 please don't interact with us if you are/support endos or compare irls to system things/alters
+
+dni if you believe in "d/a"s or whatever they're saying these days; kinnies that aren't terminally online are fine
