@@ -4,11 +4,11 @@ hello ! we are a 6+ yr prof dxd osdd system
 we don't specify who is fronting sorry
 iykyk
 
-minor alters do not talk to strangers
-
-we may tell you if it's necessary but it's usually not
+minor alters do not talk to strangers ever unless they have to tell you to leave them alone
 
 we don't talk to strangers often, usually are sitting with friends
+
+if our ponies are from the same media feel free to int! but please do not send us random friend requests
 
 you may refer to us collectively with they/them pronouns
 we will tell you to use different ones if needed
