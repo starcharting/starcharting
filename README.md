@@ -2,7 +2,7 @@ prof dxd OSDD 1-b system (diagnosed for 6 yrs)
 
 we don't specify who is fronting usually since our friends can tell so you can ask for current name + pronouns if you want to
 
-if we add you as a friend you are free to c+h whenever we are online! we are usually in the library but wander sometimes
+if we add you as a friend you are free to c+h whenever we are online! we are usually in the library but wander sometimes; some of us are clingy and we love our friends!
 
 before adding someone we usually introduce ourselves as whoever is fronting
 
