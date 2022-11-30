@@ -1,41 +1,37 @@
-° • ° • ° • ° • °
+prof dxd OSDD 1-b system (diagnosed for 6 yrs)
 
-hello ! we are a 6+ yr prof dxd osdd system
-we don't specify who is fronting sorry
+we don't specify who is fronting usually since our friends can tell so you can ask for current name + pronouns if you want to
 
-minors in system typically don't list their ages or warn people when speaking with them, please be wary since they are typically more social than other people
+if we add you as a friend you are free to c+h whenever we are online! 
 
-they won't interact with you if you have mdni in your link
+before adding someone we usually introduce ourselves as whoever is fronting
 
-we don't talk to strangers often, usually are sitting with friends
+we will tell you our individual pronouns if needed
 
-if our ponies are from the same media feel free to int! but please do not send us random friend requests
+collectively you can refer to us as stellar + them/them pronouns
 
-you may refer to us collectively with they/them pronouns
-we will tell you to use different ones if needed
+our host is 22 and we are biologically 21+ 
 
-our hosts are 22 and 26 and we are biologically 21+
+we are white + intersex 
 
-we do not make friends with minors (minors in our system are biologically adults so they don't make friends with bodily minors ever)
+legally married irl + working full time so we may not always be active, we are often sitting with our husband + his system, we live together
 
-we are married irl and work full time so we may not be around often
+there are minors in our system that may or may not specify their age prior to engaging with strangers. they will inform you if necessary and will not interact if you have mdni in any of your links
 
-if we add you as a friend you are free to c+h whenever
+we do not make friends with minors, minors in our system are still biologically adults and do not engage with biological minors either
 
-° • ° • ° • ° • °
+---
 
-standard dni applies, we are often offtab so you may whisper
+introjects in our system do not race claim nor use source names
 
-dni proship we aren't going to debate shipping on a silly horse game but no thank you
+typically introjects in our system prefer not to specify they are one, we prefer to be treated like people
 
-our hosts are both mlm + bi but otherwise varies
+---
 
-we are white and introjects in system never race claim or use names from sources
+dni - we won't debate any of this or harass anyone we just prefer not to engage with people who fit these criteria, thank you
 
-please don't interact with us if you are/support endos or compare irls to system things/alters, or got all of your did/osdd information from social media and think you have it to larp as 'fictives' ty
+proship/neutral • endo/supporter • "no doubles" people • anti-recovery • irls/d/as • people who believe in "blackwashing" • people who are not mlm and mainly consume mlm content • people who are not critical of their interests • minors • terminally online
 
-we are not anti self dx but please do genuine research, disorders are serious and not just quirks for fun; osdd and did are debilitating in the real world and not just a fun social thing for rping as fictional characters
+we don't go out of our way to judge people (unless you're a system being racist/appropriative because we see that a lot on here fsr!) but if you got all of your system info from social media (especially tiktok) and self dx'd it to rp as "fictives" you should not engage with us, we can tell
 
-we don't believe in enabling/supporting "delusions" or "irls". we won't go out of our way to engage nor harass anyone but please consider rethinking this trend you're feeding into that people just made up online to be no doubles kinnies in a "justified" way. you can be kin without being terminally online and weird about it. it is literally just kinning. if any of you were truly delusional you wouldn't be aware of it + have kinlists of your "delusions". 
-
-related, dni if you're the insecure "no doubles" kind of person 
+please don't be explicit/nsfw to us if we don't know you
