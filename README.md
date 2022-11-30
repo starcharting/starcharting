@@ -2,9 +2,10 @@
 
 hello ! we are a 6+ yr prof dxd osdd system
 we don't specify who is fronting sorry
-iykyk
 
-minor alters do not talk to strangers ever unless they have to tell you to leave them alone
+minors in system don't list their ages or warn people when speaking with them, please be wary since they are typically more social than other people
+
+they won't interact with you if you have mdni in your link
 
 we don't talk to strangers often, usually are sitting with friends
 
@@ -15,7 +16,7 @@ we will tell you to use different ones if needed
 
 our hosts are 22 and 26 and we are biologically 21+
 
-we do not make friends with minors
+we do not make friends with minors (minors in our system are biologically adults so they don't make friends with bodily minors ever)
 
 we are married irl and work full time so we may not be around often
 
