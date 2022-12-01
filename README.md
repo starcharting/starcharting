@@ -1,4 +1,4 @@
-prof dxd OSDD 1-b system (diagnosed for 6 yrs)
+prof dxd OSDD 1-b (diagnosed for 6 yrs)
 
 we don't specify who is fronting usually since our friends can tell so you can ask for current name + pronouns if you want to
 
@@ -34,6 +34,8 @@ dni - we won't debate any of this or harass anyone we just prefer not to engage 
 
 proship/neutral • endo/supporter • "no doubles" people • anti-recovery • irls/d/as • people who believe in "blackwashing" • people who are not mlm and mainly consume mlm content • people who are not critical of their interests • minors • terminally online
 
-we don't go out of our way to judge people (unless you're a system being racist/appropriative because we see that a lot on here fsr!) but if you got all of your system info from social media (especially tiktok) and self dx'd it to rp as "fictives" you should not engage with us, we can tell
+we don't go out of our way to judge people (unless you're a "system" being racist/appropriative because we see that a lot on here fsr!) but if you got all of your system info from social media (especially tiktok) and self dx'd it to rp as "fictives" you should not engage with us, we can tell
+
+not really fans of how systems became a trend online so we're wary towards ones we meet on pt, sorry
 
 please don't be explicit/nsfw to us if we don't know you
