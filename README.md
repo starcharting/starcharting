@@ -16,6 +16,8 @@ we are white + intersex
 
 legally married irl + working full time so we may not always be active, we are often sitting with our husband + his system, we live together
 
+not all of us are dating someone/our husband but we don't engage in flirting or rom relationships outside of our domestic partnered system
+
 there are minors in our system that may or may not specify their age prior to engaging with strangers. they will inform you if necessary and will not interact if you have mdni in any of your links
 
 we do not make friends with minors, minors in our system are still biologically adults and do not engage with biological minors either
