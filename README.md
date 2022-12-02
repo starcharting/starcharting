@@ -40,4 +40,4 @@ not really fans of how systems became a trend online so we're wary towards ones 
 
 please don't be explicit/nsfw to us if we don't know you
 
-we sometimes come on pt while drunk/high, please let us know if that bothers you and we won't int while under the influence! we usually put it in our name when we do
+we sometimes (rarely) come on pt while drunk/high, please let us know if that bothers you and we won't int while under the influence! we usually put it in our name when we do
