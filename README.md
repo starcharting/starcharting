@@ -26,7 +26,9 @@ we do not make friends with minors, minors in our system are still biologically 
 
 introjects in our system do not race claim nor use source names
 
-typically introjects in our system prefer not to specify they are one, we prefer to be treated like people
+typically introjects in our system prefer not to specify they are one, we prefer to not be treated like we're rping
+
+that being said our system is primarily not introjects so please don't assume that whatever horse we're on is wheoever we are; we may kin or relate to a character our skin is but we have our own personalities and prefer to separate from that kind of thing
 
 ---
 
@@ -37,6 +39,8 @@ proship/neutral • endo/supporter • "no doubles" people • anti-recovery •
 we don't go out of our way to judge people (unless you're a "system" being racist/appropriative because we see that a lot on here fsr!) but if you got all of your system info from social media (especially tiktok) and self dx'd it to rp as "fictives" you should not engage with us, we can tell
 
 not really fans of how systems became a trend online so we're wary towards ones we meet on pt, sorry
+
+we don't encourage or believe in "irls" or "d/as". people who kin are fine as long as you're not weird about it
 
 please don't be explicit/nsfw to us if we don't know you
 
