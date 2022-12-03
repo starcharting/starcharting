@@ -8,7 +8,7 @@ before adding someone we usually introduce ourselves as whoever is fronting
 
 we will tell you our individual pronouns if needed
 
-collectively you can refer to us as stellar + them/them pronouns
+collectively you can refer to us as stellar + they/them pronouns
 
 our host is 22 and we are biologically 21+ 
 
