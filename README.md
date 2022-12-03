@@ -2,6 +2,8 @@ prof dxd OSDD 1-b (diagnosed for 6 yrs)
 
 we don't specify who is fronting usually since our friends can tell so you can ask for current name + pronouns if you want to
 
+we may randomly interact with strangers or sit with them. this is never malicious! we probably just like your pony
+
 if we add you as a friend you are free to c+h whenever we are online! we are usually in the library but wander sometimes; some of us are clingy and we love our friends!
 
 before adding someone we usually introduce ourselves as whoever is fronting
@@ -32,7 +34,7 @@ that being said our system is primarily not introjects so please don't assume th
 
 ---
 
-dni - we won't debate any of this or harass anyone we just prefer not to engage with people who fit these criteria, thank you
+dni - we won't debate any of this or harass anyone we just prefer not to engage with people who fit these criteria; if we interact with you are you fall somewhere on this list (with the except of proship, racism, etc) we do not mean it maliciously. regardless of what we may disagree on we would rather be nice than start ponytown drama
 
 proship/neutral • endo/supporter • "no doubles" people • anti-recovery • irls/d/as • people who believe in "blackwashing" • people who are not mlm and mainly consume mlm content • people who are not critical of their interests • minors • terminally online
 
