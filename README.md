@@ -34,7 +34,7 @@ that being said our system is primarily not introjects so please don't assume th
 
 ---
 
-dni - we won't debate any of this or harass anyone we just prefer not to engage with people who fit these criteria; if we interact with you are you fall somewhere on this list (with the except of proship, racism, etc) we do not mean it maliciously. regardless of what we may disagree on we would rather be nice than start ponytown drama
+dni - we won't debate any of this or harass anyone we just prefer not to engage with people who fit these criteria; if we interact with you and you fall somewhere on this list (with the except of proship, racism, etc) we do not mean it maliciously. regardless of what we may disagree on we would rather be nice than start ponytown drama
 
 proship/neutral • endo/supporter • "no doubles" people • anti-recovery • irls/d/as • people who believe in "blackwashing" • people who are not mlm and mainly consume mlm content • people who are not critical of their interests • minors • terminally online
 
