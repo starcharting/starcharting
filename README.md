@@ -16,7 +16,7 @@ our host is 22 and we are biologically 21+
 
 we are white + intersex 
 
-legally married irl + working full time so we may not always be active, we are often sitting with our husband + his system, we live together
+legally married irl (@1prozac) + working full time so we may not always be active, we are often sitting with our husband + his system, we live together
 
 not all of us are dating someone/our husband but we don't engage in flirting or rom relationships outside of our domestic partnered system
 
