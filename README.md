@@ -1,4 +1,4 @@
-prof dxd OSDD 1-b (diagnosed for 6 yrs)
+prof dxd OSDD 1-b
 
 we don't specify who is fronting usually since our friends can tell so you can ask for current name + pronouns if you want to
 
@@ -12,7 +12,7 @@ we will tell you our individual pronouns if needed
 
 collectively you can refer to us as stellar + they/them pronouns
 
-our host is 22 and we are biologically 21+ 
+our host is 23 and we are biologically 21+ 
 
 we are white + intersex 
 
